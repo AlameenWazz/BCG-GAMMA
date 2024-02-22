@@ -1,1 +1,1 @@
-# BCG-X
+# BCG-GAMMA
